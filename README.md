@@ -2,4 +2,4 @@
 
 To improve is to change
 
-Add more
+There is nothing permanent, except change
